@@ -1,1 +1,1 @@
-[Link](kin16742.github.io)
+[Link](https://kin16742.github.io/)
